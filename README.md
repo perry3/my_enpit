@@ -3,6 +3,7 @@ HELLO WORLD
 this is your secod commitment
 enpit 2014 yuki
 
-it`s so dificult...
+Can i clear this work?
+
 
 change new branch
