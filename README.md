@@ -2,7 +2,8 @@ HELLO WORLD
 
 TODAY`s new branch
 
-ihate this
+i hate this
 
+pluttypus perry!!
 this is your secod commitment
 enpit 2014 yuki
